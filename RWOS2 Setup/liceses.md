@@ -1,0 +1,6 @@
+Please read carefully
+DO NOT COPY CONTENT FROM THIS DIRECTORY
+FILES FROM HERE ARE PROTECTED BY THE COPYRIGHT LAW
+
+Last Updated: 10/24/2021
+© Copyright 2021 Rich Writes Corporation
